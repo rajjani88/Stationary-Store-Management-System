@@ -24,9 +24,9 @@ Features of Project
 Live Demo : 
 https://youtu.be/hjnGixig5ms
 
-If you like show some support :
-Instgram : @_rajjani
-twitter : janiraj88
+If you like show some support :</br>
+Instgram : @_rajjani</br>
+twitter : janiraj88</br>
 fb : https://www.facebook.com/rajjani8/
 
 Further more money support :) : 
